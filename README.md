@@ -1,1 +1,1 @@
-# kumanda_s-n-f-
+# kumanda_sinifi
